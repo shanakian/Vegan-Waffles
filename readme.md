@@ -1,0 +1,1 @@
+Vegan waffle recipe
